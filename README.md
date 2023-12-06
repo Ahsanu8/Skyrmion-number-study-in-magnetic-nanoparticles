@@ -1,0 +1,1 @@
+# Skyrmion-number-study-in-magnetic-nanoparticles
